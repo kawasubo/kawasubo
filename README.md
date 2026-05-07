@@ -2,7 +2,7 @@
 - 👀 I’m interested in keep learning coding and make art with it.
 - 🌱 I’m currently learning creative coding.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: ig: @karenconw, karenhdzalc@gmail.com
+- 📫 How to reach me: karenhdzalc@gmail.com
 - 😄 Pronouns: she.
 - ⚡ Fun fact: I'm a fashion dictator.
 
